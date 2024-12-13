@@ -1,1 +1,0 @@
-# Loyiha-ishi
